@@ -1,3 +1,32 @@
+# Vegan BBQ 101
+ 
+**Ingredients**  
+* 2 Large Portobello mushrooms
+* 150 g Aubergine – approx half a medium aubergine
+* 4 corn on the cob
+* 250 g of cooked potato
+* 150 g cooked carrots
+* 1 Red onion
+* ½ tsp paprika
+* 2 burger buns – optional
+* For salsa;
+* 2 of the above corn on the cob when grilled
+* 1 ripe avocado
+* 10 cherry tomatoes
+* 2 limes
+* 3 stalks fresh Coriander
+* 2 scallions or 1 large
+
+**Mushroom marinade**  
+* 2 cloves garlic
+* ½ Tbsp dried oregano
+* ½ Tbsp dried mixed herbs
+* 2 tbsp wholegrain mustard/dijon
+* 50 ml Balsamic – 6 Tbsp
+* 3 tbsp Tamari
+* 4 Tbsp Oil
+* Pinch Salt
+* Pinch freshly ground black pepper
 ## INSTRUCTIONS  
 
 1. For the marinade simply blend everything in a food processor/ blender or peel and finely chop the garlic and whisk all the ingredients together. Slice the aubergine into circles approx ½ -1 cm thick (about 4-5 slices) Peel and quarter the red onion.
